@@ -1,2 +1,2 @@
-# OneAIMHK.github.io
+# OneAIM HK
 OneAIM Limited
